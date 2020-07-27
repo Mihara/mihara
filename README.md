@@ -1,4 +1,10 @@
-### Hi there 👋
+"Oh.. so your.. 11 hours fast."
+
+"Yes, I live in the future."
+
+"I doubt Russia is considered the ‘future’"
+
+"Well, maybe not Russia in general, but I certainly do."
 
 <!--
 **Mihara/mihara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
